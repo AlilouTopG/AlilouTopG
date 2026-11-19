@@ -32,6 +32,6 @@ Passionate about bridging industrial control systems with modern software, IoT, 
 
 ### 📫 Connect With Me
 
-- **Email:** [benseffaalilou@gmail.com](mailto:benseffaalilou@gmail.com)
+- **Email:** [benseffaalilou@gmail.com](mailto:dznacer81@gmail.com)
 - **LinkedIn:** [(https://www.linkedin.com/in/benseffa-ali-nasreddine-a16775267/)](https://linkedin.com)
-- **Instagram:** [@nacer_bnsfa](https://www.instagram.com/nacer_bnsfa)
+- **Instagram:** [@nacer_bnsfa](https://www.instagram.com/alilou_bnsfa)
